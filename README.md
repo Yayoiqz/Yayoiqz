@@ -14,3 +14,6 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+- 👩🏼‍🎤 A FE developer
+- 🎁 Be interested in ACG
+- 💫 Nothing is more important than being happy
